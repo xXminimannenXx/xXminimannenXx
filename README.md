@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @xXminimannenXx
-- 👀 I’m interested in games dev and music.
+- 👀 I’m interested in games dev, playing games and various other forms of media.
 - 🌱 I’m currently learning everything watch out.
 - 💞️ I’m looking to collaborate on nuthing
 - 📫 How to reach me minimannen06@gmail.com
