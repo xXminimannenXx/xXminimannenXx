@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @xXminimannenXx or Anton
-- 👀 I’m interested in games dev, playing games and various other forms of media.
+- 👀 I’m interested in gamedev, playing games and various other forms of media.
 - 🌱 I’m currently learning everything watch out.
 - 💞️ I’m looking to collaborate on nuthing except games with my friends
 - 📫 How to reach me minimannen06@gmail.com
