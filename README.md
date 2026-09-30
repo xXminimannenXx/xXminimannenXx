@@ -2,7 +2,7 @@
 - 👀 I’m interested in gamedev, playing games and various other forms of media.
 - 🌱 I’m currently learning everything watch out.
 - 💞️ I’m looking to collaborate on nuthing except games with my friends
-- 📫 How to reach me minimannen06@gmail.com
+- 📫 How to reach me minimannen06@gmail.com or my discord xxminimannenxx
 - 😄 Pronouns: Top/1 (he/him)
 - ⚡ Fun fact: im the best 
 
